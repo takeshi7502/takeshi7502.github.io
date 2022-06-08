@@ -1,0 +1,1 @@
+# takeshi7502.github.io
